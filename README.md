@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="file:///C:/Users/admin/Downloads/Polish_20240312_003407725.png" alt="StringGen">
+  <img src="[file:///C:/Users/admin/Downloads/Polish_20240312_003407725.png](https://telegra.ph/Smexy-Store-03-11-2)" alt="StringGen">
 
  
 ### 🤤 ғᴇᴀᴛᴜʀᴇs
