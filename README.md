@@ -1,5 +1,5 @@
 <p align="center">
-![Polish_20240312_003407725](https://github.com/telegrambots0/Smexy-String-Session-Bot/assets/146921432/a76ed499-2a5f-478d-b92b-9874451ad1be)
+  <img src="file:///C:/Users/admin/Downloads/Polish_20240312_003407725.png" alt="StringGen">
 
  
 ### 🤤 ғᴇᴀᴛᴜʀᴇs
